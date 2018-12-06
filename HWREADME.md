@@ -1,4 +1,6 @@
 # Homework
+12/6/2018  
+Page 54 answer question 11  
 12/3/2018 HW  
 page 53,54 #s 1-4  
 page 25 #7
